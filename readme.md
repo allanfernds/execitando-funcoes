@@ -15,13 +15,3 @@ LinkedIn:https://www.linkedin.com/in/alan-fernandes-03096317b/
 Instagram: https://www.instagram.com/_alanfernds/
 
 E-mail: alanfernandes.mm@gmail.com
-
-# JS---Utilizando-Fun-es
-# JS---Utilizando-Fun-es
-# JS---Utilizando-Fun-es
-# JS---Utilizando-Fun-es
-# JS---Se-Aprofundando-nas-Fun-es
-# JS---Se-Aprofundando-nas-Fun-es
-# JS---Se-Aprofundando-nas-Fun-es
-# JS---Se-Aprofundando-nas-Fun-es
-# JS---Se-Aprofundando-nas-Fun-es
